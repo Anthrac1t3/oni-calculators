@@ -1,0 +1,1 @@
+# Taken from ONI wiki: https://oxygennotincluded.fandom.com/wiki/Metal_Volcano?so=search
